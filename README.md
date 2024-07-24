@@ -1,2 +1,2 @@
-# my excel certificate 
-![alt text]. (https://IMG_20240722_181217.jpg)
+# My excel certificate 
+ (https://IMG_20240722_181217.jpg)
